@@ -1,0 +1,1 @@
+# The-Results-of-Research-on-Discrete-Semantics-in-Continuous-Hand-Joint-Movement-Based-on-Perception
